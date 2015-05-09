@@ -7,7 +7,7 @@
 ```
 
 ### 轩锅
-感谢中国好舍长轩锅四年来的照顾，轩锅真的为723做了很多。虽然有时忘记交水电费，囧，但永远不会忘记每晚来一发吉他的刺激～～
+感谢中国好舍长轩锅四年来的照顾，轩锅真的为723做了很多。虽然有时忘记交水电费，囧，但永远不会忘记每晚来一发吉他的刺激～～  
 祝轩锅在袋鼠国好好干，回来变身大神！
 
 ![](http://b214.photo.store.qq.com/psb?/V14XFVmm0J6ypG/jk4Im.SQ8iIxV7BiO.hZwaC1YlNjBBF775Mpdcji5pE!/b/YROsoX9ZgAAAYgHrk3*BgQAA&bo=WAIgAwAAAAABAF4!&rf=viewer_4)
@@ -20,7 +20,7 @@
 ![](http://b171.photo.store.qq.com/psb?/V14XFVmm0Szxab/ZFDi6wEJdhOxCGF5PbG88Ah1cfhB0.CZaTCXNSMRyTk!/b/dI7a.GXWAQAA&bo=wwOAAgAAAAABAGU!&rf=viewer_4)
 
 ### 智威
-智威人称神童威，是我们宿舍最奇葩的生物。感谢智威让我们知道，生活是可以这么美的...
+智威人称神童威，是我们宿舍最奇葩的生物。感谢智威让我们知道，生活是可以这么美的... 祝智威以后生活美美哒！
 注：此君期末考试前的备战活动是通宵看电视剧，然而成绩啪啪啪，故人称神童威。
 ![](http://b261.photo.store.qq.com/psb?/V14XFVmm0J6ypG/FGyiHONnfiaeRjBLamdmFk.Z7qG840GERcUHFSmjLpg!/b/YX0TmZt*AQAAYnOWl5uBAQAA&bo=ngL2AQAAAAABAEw!&rf=viewer_4)
 
