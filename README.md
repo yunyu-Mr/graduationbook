@@ -10,8 +10,9 @@
 * [写给生活部](for_life/README.md)
 * [遗言](last/README.md)
 
-### 电子版下载
-推荐`.epub`，不推荐`.pdf`和`.mobi`，因为生成字体比较奇葩。
+> **电子书版下载**
+
+> 推荐`.epub`，不推荐`.pdf`和`.mobi`，因为生成字体比较奇葩。
 * [.epub](https://www.gitbook.com/download/epub/book/yunyu-mr/graduation)
 * [.pdf](https://www.gitbook.com/download/pdf/book/yunyu-mr/graduation)
 * [.mobi](https://www.gitbook.com/download/mobi/book/yunyu-mr/graduation)
