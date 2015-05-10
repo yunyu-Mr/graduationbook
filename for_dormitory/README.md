@@ -7,27 +7,27 @@
 ```
 
 ### 轩锅
-感谢中国好舍长轩锅四年来的照顾，轩锅真的为723做了很多。虽然有时忘记交水电费，囧，但永远不会忘记每晚来一发吉他的刺激～～  
+感谢中国好舍长轩锅四年来的照顾，轩锅真的为723做了很多。虽然有时忘记交水电费，囧，但永远不会忘记每晚来一发吉他的刺激～～
 祝轩锅在袋鼠国好好干，回来变身大神！
 
-![](http://b214.photo.store.qq.com/psb?/V14XFVmm0J6ypG/jk4Im.SQ8iIxV7BiO.hZwaC1YlNjBBF775Mpdcji5pE!/b/YROsoX9ZgAAAYgHrk3*BgQAA&bo=WAIgAwAAAAABAF4!&rf=viewer_4)
+![](http://c.picphotos.baidu.com/album/s%3D1100%3Bq%3D90/sign=6603d8c6eef81a4c2232e8c8e71a5b28/c2fdfc039245d688be0fd816a1c27d1ed21b2476.jpg)
 
 ### 骚朱
 每个故事中总有一个逗比的胖子，骚朱就是我们宿舍的逗比～
 感谢骚朱每晚的鬼叫缓解宿舍学霸的气氛。
 同祝骚朱在袋鼠国好好混，争取跟local来一炮！
 
-![](http://b171.photo.store.qq.com/psb?/V14XFVmm0Szxab/ZFDi6wEJdhOxCGF5PbG88Ah1cfhB0.CZaTCXNSMRyTk!/b/dI7a.GXWAQAA&bo=wwOAAgAAAAABAGU!&rf=viewer_4)
+![](http://d.picphotos.baidu.com/album/s%3D1100%3Bq%3D90/sign=9b61a79b8318367aa9897bdc1e43b0a5/a6efce1b9d16fdfa8461ac5cb18f8c5494ee7b76.jpg)
 
 ### 智威
 智威人称神童威，是我们宿舍最奇葩的生物。感谢智威让我们知道，生活是可以这么美的... 祝智威以后生活美美哒！
 注：此君期末考试前的备战活动是通宵看电视剧，然而成绩啪啪啪，故人称神童威。
-![](http://b261.photo.store.qq.com/psb?/V14XFVmm0J6ypG/FGyiHONnfiaeRjBLamdmFk.Z7qG840GERcUHFSmjLpg!/b/YX0TmZt*AQAAYnOWl5uBAQAA&bo=ngL2AQAAAAABAEw!&rf=viewer_4)
+![](http://g.picphotos.baidu.com/album/s%3D1100%3Bq%3D90/sign=7d43e2805fafa40f38c6cadc9b54383e/d1a20cf431adcbef78ba2bb4a9af2edda2cc9ff1.jpg)
 
 ### 骚铭
 最后这是鄙人，我爱白菜。
 
-![](http://b170.photo.store.qq.com/psb?/V14XFVmm0Szxab/so0tY3V4kv7SzcSnJrhAo6fiyaet6fXXp6JM*TpOdek!/b/dLg0WmVSHQAA&bo=gALDAwAAAAABAGU!&rf=viewer_4)
+![](http://d.picphotos.baidu.com/album/s%3D1100%3Bq%3D90/sign=7840d2939613b07eb9bd54093ce7aa52/9f510fb30f2442a75a81a817d443ad4bd01302f0.jpg)
 ---
 [目录](../SUMMARY.md)
 * [序言](../README.md)
