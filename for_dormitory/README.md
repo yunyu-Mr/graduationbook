@@ -27,7 +27,7 @@
 ### 骚铭
 最后这是鄙人，我爱白菜。
 
-![](http://d.picphotos.baidu.com/album/s%3D1100%3Bq%3D90/sign=7840d2939613b07eb9bd54093ce7aa52/9f510fb30f2442a75a81a817d443ad4bd01302f0.jpg)
+![](http://b167.photo.store.qq.com/psb?/V14XFVmm0hyDwp/ApJyTvS2EUEjGQcUXO9ONx5LroA9dbVUSsFLKqK8Xig!/b/dLJwlmO9KgAA&bo=GQKAAgAAAAABAL4!&rf=viewer_4)
 ---
 [目录](../SUMMARY.md)
 * [序言](../README.md)
