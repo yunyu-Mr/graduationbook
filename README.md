@@ -24,5 +24,5 @@
 Author: ♂骚铭科技®
 Date:   2015年 夏
 
-![](http://a3.qpic.cn/psb?/V14XFVmm0mOgz6/JTY5jATipKe3qX21ukEEoRwS67WN.9Y4lHuoYlgBY.M!/b/dA4AAAAAAAAA&bo=ZABkAAAAAAAFACM!&rf=viewer_4)
+![](http://www.gravatar.com/avatar/8b3f7bf5381a9c6f859558e9d0a7d5dc.png)
 
