@@ -18,7 +18,7 @@
 
 > **电子书版下载**
 
-> 推荐`.epub`，不推荐`.pdf`和`.mobi`，因为生成字体比较奇葩。
+> 电子书是自动生成的，pdf的字体不太和谐，epub存在缺失标题的问题，仍在维护中。
 * [.epub](https://www.gitbook.com/download/epub/book/yunyu-mr/graduation)
 * [.pdf](https://www.gitbook.com/download/pdf/book/yunyu-mr/graduation)
 * [.mobi](https://www.gitbook.com/download/mobi/book/yunyu-mr/graduation)
